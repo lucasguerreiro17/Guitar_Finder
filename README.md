@@ -1,4 +1,4 @@
-## Guitarras Quentes: A Busca Definitiva pelo seu Modelo Ideal 
+## Guitar Finder: A Busca Definitiva pelo seu Modelo Ideal 
 
 **O que é isso?**
 
